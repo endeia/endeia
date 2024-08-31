@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @endeia
-- 👀 I’m interested in learing
+- 👀 I’m interested in learning
 - 🌱 I’m currently learning phyton
 - 💞️ I’m looking to collaborate on projet endeia
 - 📫 How to reach me ...9940570631
